@@ -1,7 +1,7 @@
 - Guillermo
 - He/Him
 - Python junior
-- 17 yo
+- 18 yo
 - Mexican 
 
 https://twitter.com/DeathKing922
